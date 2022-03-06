@@ -95,3 +95,7 @@ Updates sille wurde tafoege, meitsje jo gjin soargen! GROOT LJOCHT FERGJE FOL TE
 https://www.youtube.com/watch?v=3u9orcWatIw
 https://www.youtube.com/watch?v=Ozs079hRq8c&list=RDOzs079hRq8c&start_radio=1
 https://www.youtube.com/watch?v=cMkJDPvJxdk&list=RDOzs079hRq8c&index=16 ---- для особых любителей!!!!!
+
+
+https://www.youtube.com/watch?v=zwUXP_hqtSU ----------- ਮੈਨੂੰ ਨਹੀਂ ਪਤਾ ਕਿ ਇੱਥੇ ਕੀ ਜੋੜਨਾ ਹੈ! .0
+
