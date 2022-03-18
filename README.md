@@ -1,4 +1,4 @@
-# Marionnettiste
+# Sekvanto.
 Je n'écrirai rien ici. כי הדף הזה נוצר בכוונה. Bonsoir. 
 Ce sera comme un fichier de test README.md. Il y aura des tentatives infructueuses d'exprimer certains événements ... אם מישהו מרגיש את זה, בבקשה תוציא אותי מכאן, נמאס לי מזה. רוכב חודר בעור ארנב מענה בשר. Serait-ce une tentative d'auto-défense ? 
 AIDE MOI AIDE MOI AIDE MOI AIDE MOI AIDE MOI
@@ -98,4 +98,54 @@ https://www.youtube.com/watch?v=cMkJDPvJxdk&list=RDOzs079hRq8c&index=16 ---- д�
 
 
 https://www.youtube.com/watch?v=zwUXP_hqtSU ----------- ਮੈਨੂੰ ਨਹੀਂ ਪਤਾ ਕਿ ਇੱਥੇ ਕੀ ਜੋੜਨਾ ਹੈ! .0
+
+
+
+!!!!!!!!!
+
+
+https://www.youtube.com/channel/UCXEUI5O4_VBMg9cr0WdCDQw
+
+
+
+Mi delonge ne ĝisdatigis ĉi tiun paĝon, sed.... DANKON AL TIUJ, KIUJ ANCORA RESTAS ĈE MI =)
+
+
+
+
+
+https://www.youtube.com/channel/UCXEUI5O4_VBMg9cr0WdCDQw
+
+
+
+
+https://www.youtube.com/watch?v=o6s7tfSexTQ&list=RDMMo6s7tfSexTQ&start_radio=1
+
+
+
+
+
+
+THANDIZANI BWINO! =)
+
+
+
+
+
+!!!!!!!!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
